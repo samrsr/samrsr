@@ -1,4 +1,4 @@
-# Oiê! Eu sou o Samuel 👋 💻
+# Oi! Eu sou o Samuel 👋 💻
 
 
 ## Sobre mim
